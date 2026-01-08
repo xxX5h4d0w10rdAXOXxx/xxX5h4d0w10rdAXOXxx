@@ -1,16 +1,16 @@
-## Hi there 👋
+════════════════════════════════════════════════════════════
+Names : Azzox / Bread / Anything on my prns.cc or pony name
+Pronouns : he/him/his/theirs - See prns.cc :]
+════════════════════════════════════════════════════════════
 
-<!--
-**xxX5h4d0w10rdAXOXxx/xxX5h4d0w10rdAXOXxx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- ADORES INTERACTING (but socially anxious :melting_face:)
+- Usually near docks, wandering, or in RP
+- OK roleplayer on Pony Town - Is more used to one-on-one RP
+- Makes niche fandom ponies the most :]
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Check out my Carrd and Atabook!! :D
+
+PT-Centric Carrd : 
+
+Atabook : https://azox.atabook.org/
