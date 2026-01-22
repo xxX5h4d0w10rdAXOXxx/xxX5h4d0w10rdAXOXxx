@@ -9,8 +9,8 @@ Names : Azzox / Bread / Anything on my prns.cc or pony name
 - Makes niche fandom ponies the most :]
 
 
-Check out my Carrd to see my fandoms!
+Check out my [Carrd](https://azzox.carrd.co) to see my fandoms!
 
-Sign my Atabook!!
+Sign my [Atabook]()!!
 
 ════════════════════════════════════════════════════════════
