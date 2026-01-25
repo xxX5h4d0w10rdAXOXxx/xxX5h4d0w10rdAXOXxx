@@ -2,7 +2,7 @@
 
 ART BY : [@captainrujo on Tumblr!](https://captainrujo.tumblr.com/)
 
-One of my absolute favorite arts of Tenna & Spamton! ^^ (Inspired my Tenna pony!)
+(Inspired my Tenna pony!! ^^)
 
 ══════════════════════════════════════════════════
 
