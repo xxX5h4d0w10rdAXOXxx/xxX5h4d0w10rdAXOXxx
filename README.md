@@ -1,4 +1,4 @@
-<img width="1280" height="973" alt="tumblr_ebacd0be17933134f017577a92a17537_906f9407_1280" src="https://github.com/user-attachments/assets/5bcd07ce-1549-4294-9823-2e1729a49a18" />
+<img width="1280" height="973" alt="image (2)" src="https://github.com/user-attachments/assets/bb76fff1-5b92-43a6-b99c-12e326da4323" />
 
 ART BY : [@captainrujo on Tumblr!](https://captainrujo.tumblr.com/)
 
