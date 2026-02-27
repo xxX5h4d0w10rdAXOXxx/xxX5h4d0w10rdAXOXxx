@@ -1,21 +1,24 @@
-<img width="2048" height="24" alt="divider-red-squiggle" src="https://github.com/user-attachments/assets/4567f351-5e4e-4218-8b01-fa2d9141048a" />
-![BloodOcean](https://github.com/user-attachments/assets/c7cd7ca5-21c5-4ef2-83a6-5838b1726047)
+div {
+  text-align: justify;
+  text-justify: inter-word;
+}
 
-<img width="2048" height="24" alt="divider-red-squiggle" src="https://github.com/user-attachments/assets/4567f351-5e4e-4218-8b01-fa2d9141048a" />
+![BloodOcean (1)](https://github.com/user-attachments/assets/308a481e-0d25-43c7-a31e-f0fc7960af1f)
 
-ART BY : [@captainrujo on Tumblr!](https://captainrujo.tumblr.com/)
+> *“ It's more than me. ”*
 
-(Inspired my Tenna pony!! ^^)
+ ART BY : [@_____ on _____!](link)
 
 ══════════════════════════════════════════════════
 
-Names : Azzox / Bread / Anything on my prns.cc or pony name
-
+Names : Bread / Anything on my prns.cc or pony name
 
 - ADORES INTERACTING (but socially anxious :melting_face:)
 - Usually near docks, wandering, or in RP
 - OK roleplayer on Pony Town - Is more used to one-on-one RP
 - Makes niche fandom ponies the most :]
+
+
 
 
 Check out my [Carrd](https://azzox.carrd.co) to see my fandoms!
