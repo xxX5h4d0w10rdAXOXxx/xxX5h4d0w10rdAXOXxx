@@ -1,8 +1,7 @@
 <img width="2048" height="74" alt="divider-red-white-fade" src="https://github.com/user-attachments/assets/1561dd2c-14d0-45c0-abda-34d093260402" />
 <img width="2048" height="69" alt="divider-let-me-out" src="https://github.com/user-attachments/assets/3a28a357-b262-4c50-b2fd-73500df8c310" />
-<img width="1000" height="100" alt="divider-red-star-4" src="https://github.com/user-attachments/assets/8d669a49-fee1-4b3d-bf47-cffa66f6814f" />
-
 ![BloodOcean (1)](https://github.com/user-attachments/assets/308a481e-0d25-43c7-a31e-f0fc7960af1f)
+<img width="1000" height="100" alt="divider-red-star-4" src="https://github.com/user-attachments/assets/8d669a49-fee1-4b3d-bf47-cffa66f6814f" />
 
 > *“ It's more than me. ”*
 
