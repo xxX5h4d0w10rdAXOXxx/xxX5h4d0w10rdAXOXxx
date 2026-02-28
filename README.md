@@ -2,9 +2,9 @@
 <img width="1250" height="52" alt="divider-red-fade-1" src="https://github.com/user-attachments/assets/68fb833b-7dce-4527-b689-d245c8deea7e" />
 
 ![BloodOcean (1)](https://github.com/user-attachments/assets/308a481e-0d25-43c7-a31e-f0fc7960af1f)
-
-<img width="1000" height="100" alt="divider-red-star-4" src="https://github.com/user-attachments/assets/8d669a49-fee1-4b3d-bf47-cffa66f6814f" />
 <img width="1250" height="52" alt="divider-red-fade-2" src="https://github.com/user-attachments/assets/c9c5c126-afe3-412a-876d-c55485275317" />
+<img width="1000" height="100" alt="divider-red-star-4" src="https://github.com/user-attachments/assets/8d669a49-fee1-4b3d-bf47-cffa66f6814f" />
+
 <p align="center"> Call me anything on my prns.cc, pronouns.page, or pony name!
 
 <p align="center"> - ADORES INTERACTING (but socially anxious :melting_face:)
