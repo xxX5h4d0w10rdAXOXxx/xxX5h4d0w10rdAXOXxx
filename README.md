@@ -2,8 +2,13 @@
 <p align="center"> <img width="2048" height="69" alt="divider-let-me-out" src="https://github.com/user-attachments/assets/3a28a357-b262-4c50-b2fd-73500df8c310" /> 
 <p align="center"> <img width="1250" height="52" alt="divider-red-fade-1" src="https://github.com/user-attachments/assets/68fb833b-7dce-4527-b689-d245c8deea7e" 
 
+
+ <img width="1600" height="120" alt="divider-blood-2" src="https://github.com/user-attachments/assets/feccdcbb-acb5-4ae8-a709-b5225cd75b0d" />
+
+
 <p align="center"> <img width="327" height="327" alt="tumblr_4e18b08b38f6711cb43729d7fb9986a4_cc2a66a4_2048_cropped_6_cropped_50" src="https://github.com/user-attachments/assets/ca73b209-98b3-4f5a-bfb0-36b910841be8" /> 
 
+ <img width="1600" height="120" alt="divider-blood-2" src="https://github.com/user-attachments/assets/feccdcbb-acb5-4ae8-a709-b5225cd75b0d" />
 
 ### <p align="center"> Most people call me Bread! :]
 
