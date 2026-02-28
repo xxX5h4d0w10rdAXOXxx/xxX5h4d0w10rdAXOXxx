@@ -13,6 +13,8 @@
 <p align="center"> - Makes niche fandom ponies the most :]
 
 
+<img width="1250" height="52" alt="divider-red-fade-2" src="https://github.com/user-attachments/assets/c9c5c126-afe3-412a-876d-c55485275317" />
+<img width="1250" height="52" alt="divider-red-fade-1" src="https://github.com/user-attachments/assets/68fb833b-7dce-4527-b689-d245c8deea7e" />
 
 <p align="center"> <img width="600" height="34" alt="divider-red-star" src="https://github.com/user-attachments/assets/ff92c7b3-f72a-4fea-ae78-e9cb85d19d71" />
 
