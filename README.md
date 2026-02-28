@@ -13,7 +13,7 @@
 ### <p align="center"> I'd love to make new friends and mutuals!!
 <img width="2048" height="24" alt="divider-red-dashes" src="https://github.com/user-attachments/assets/cefb37cf-2a55-4cfc-8620-673df8df5fac" />
 
-## <p align="center">[__Atabook__]([https://azzox.carrd.co/](https://azzox.atabook.org/)
+## <p align="center"> [__Atabook / Guestbook__](https://azzox.atabook.org/)
 ## <p align="center"> [__Carrd__](https://azzox.carrd.co/)
 ## <p align="center"> [__Pronouns.page__](https://en.pronouns.page/@Azzox) & [__Pronouns.cc__](https://pronouns.cc/@xxX5h4d0w10rdAZOXxx)
 <img width="2048" height="24" alt="divider-red-dashes" src="https://github.com/user-attachments/assets/cefb37cf-2a55-4cfc-8620-673df8df5fac" />
