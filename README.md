@@ -23,7 +23,7 @@
 
 - ADORES INTERACTING (but socially anxious :melting_face:)
 - Usually near docks, wandering, or in RP
-- OK roleplayer on Pony Town - *(Is more used to one-on-one RP)*
+- OK roleplayer on Pony Town - *(Is more used to one-on-one text based RP)*
 - Makes niche fandom ponies the most :]
 
 <img width="1000" height="100" alt="divider-red-star-4" src="https://github.com/user-attachments/assets/4fe8f95c-93ca-4df9-8c6a-402b1f225af0" />
